@@ -1,1 +1,1 @@
-Eat guacamole but think about the watr situation where avocados are grown.
+Eat guacamole but think about the water situation where avocados are grown.
